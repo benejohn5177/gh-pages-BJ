@@ -23,7 +23,9 @@ milk, lastly the flour, baking powder and salt sifted together.
 Beat throughly and bake in two oiled layer cake pans in
 a moderate oven—about 350°F. When cool, fill and frost.
 
-Recipe from [Woman's World calendar cookbook](https://babel.hathitrust.org/cgi/pt?id=coo1.ark:/13960/t3805nx1f&seq=25) 
+Recipe from [Woman's World calendar cookbook](https://babel.hathitrust.org/cgi/pt?id=coo1.ark:/13960/t3805nx1f&seq=25)
+
+![Woman's World calendar cookbook](/images/calendar_cookbook_cover.jpg)
 
 ## Filling and Frosting for Orange and Date Cake
 ### Ingredients
